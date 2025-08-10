@@ -1,2 +1,0 @@
-# Wed
-The Wed
